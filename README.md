@@ -6,4 +6,6 @@ https://chatgpt.com/share/678fd9d2-66ac-8004-8e9e-0a50919bd9c0
 
 https://chatgpt.com/share/678fd9d2-66ac-8004-8e9e-0a50919bd9c0
 
+https://chatgpt.com/share/6799ec37-f9ec-800c-9cfe-1fc594cefc8f
+
 
